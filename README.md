@@ -1,7 +1,7 @@
 ## bem vindos ao meu perfil🖤
 Meu nome é kauany
 
-*Estou cursando [Alura](https//:www.alura.com.br)
+*Estou cursando Alura
 
 *Uso este espaço para me organizar
 
